@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Dirley Cruz 😁
+## Bem-vindo(a) ao perfil do Dirley Cruz 😎💻
 
  <div>
    <a href="https://github.com/dirleycruz">
